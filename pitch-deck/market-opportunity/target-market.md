@@ -1,0 +1,5 @@
+# Target Market
+
+The target market for this dystopian game set in the future on the blockchain Polygon is likely to be gamers who enjoy open-world action-packed games like Grand Theft Auto, Call of Duty, and Cyberpunk 2077. The game will appeal to players who enjoy fast-paced and intense gameplay, as well as those who appreciate a rich and immersive world that draws from the aesthetics and themes of cyberpunk, post-apocalyptic, and dystopian fiction. The game's focus on using blockchain technology is likely to appeal to gamers who are interested in exploring new and innovative ways of gaming and playing games that offer more ownership and control over in-game assets and virtual goods.
+
+The potential targets for the game include gamers across all platforms, including PC, consoles, and mobile devices. Given the game's focus on fast-paced action, it is likely to be popular with gamers who enjoy first-person shooters and other action-packed games. However, the game's open-world setting, rich world-building, and use of blockchain technology is likely to appeal to a wider audience, including players who enjoy games like Grand Theft Auto, Cyberpunk 2077, and Deus Ex.
